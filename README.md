@@ -13,7 +13,7 @@ Github Page : https://el-capita-no.github.io/golden/
 
 ## Get In Touche
 
-email : boussalem.radouane@gmail.com
+Email : boussalem.radouane@gmail.com
 You can visite us : [https://sites.google.com/view/r-boussalem/](https://sites.google.com/view/r-boussalem/)
 
 
